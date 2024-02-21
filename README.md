@@ -1,1 +1,1 @@
-# kamlunjazz.oma.github.io
+# kamlunjazz.github.io
